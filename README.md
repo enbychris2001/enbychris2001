@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @enbychris2001
+- 👀 I’m interested in Coding lol
+- 🌱 I’m currently learning Cod
+- 💞️ I’m looking to collaborate on Nothing (im a lone wolf 🐺😔)
+- 📫 How to reach me @enbychris2001 on twitter
